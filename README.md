@@ -7,6 +7,7 @@
 <p align="center"> im always up to cuddle u dont hv 2 ask
 <p align="center"> i dont block ppl if u cant see me idk wt 2 tell u
 <p align="center"> dont involve me in ur ponytown drama
+<p align="center"> i hv no boundaries talk 2 me however u like
 <p align="center"> im a unsrs person ill laugh and joke at everything
 <p align="center"> extreme lack of sympathy
 
