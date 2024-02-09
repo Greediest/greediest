@@ -9,7 +9,7 @@
 <p align="center"> dont involve me in ur ponytown drama
 <p align="center"> i hv no boundaries talk 2 me however u like
 <p align="center"> im a unsrs person ill laugh and joke at everything
-<p align="center"> extreme lack of sympathy
+<p align="center"> extreme lack of empathy
 
   ---
 <p align="center"> i take interest in some problematic medias but dont any support them, if ure uncomfy w mentioning a certain media lmk
